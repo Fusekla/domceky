@@ -26,9 +26,9 @@ Obec Hevlín má velmi dobrou dopravní dostupnost do Rakouska a do Znojma. Do B
 
 ### Kontakty
 - RK
-    Eliška Sladká
-    +420 724 705 706
-    reality@matiti.cz
+>Eliška Sladká
+>+420 724 705 706
+>reality@matiti.cz
 ### Status
 - 15.3.2022 poslany mail realitke kedy sa da obhliadka
 - Realitacka posle emailom niekolko terminov na vyber
