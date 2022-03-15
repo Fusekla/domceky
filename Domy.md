@@ -18,6 +18,27 @@
 - Moze sa platit hypotekou?
 - Aky tam je internet?
 - Co je za branickou na zahrade?
+
+## [Tvořihráz 2, okres Znojmo](https://reality.idnes.cz/detail/prodej/dum/tvorihraz/620cc47d2747e44ed9052b54/)
+![chyza10.png](attachments/chyza10.png)
+
+**6 200 000 Kč**
+
+**1 hodina**
+
+>V zastoupení majitele Vám nabízím k prodeji rodinný dům o dispozici 4KK, který se nachází v centru obce Tvořiház. Tato nemovitost byla zkolaudována v roce 2017, tudíž se jedná o novostavbu. Domek nabízí pěkné moderní bydlení splňující nové, náročné trendy dnešní doby. Po vstupu do nemovitosti Vás příjemně překvapí funkčnost a prostor celé nemovitosti. V přízemí se nachází obývací pokoj s kuchyňským koutem, pokoj pro hosty, komora a koupelna se sprchovým koutem. Z obývacího pokoje je vstup na zahrádku, kde je prostorná pergola i se stahovacími roletami a otevřená letní kuchyně s grilem a udírnou. V patře se nachází ložnice s šatnou, koupelna a velmi prostorný dětský pokoj. Vytápění domu je elektrickým kotlem a rozvody jsou v podlaze. Vybavení nemovitostí je nadstandartní a je součástí prodeje . K nemovitosti náleží dvě parkovací místa před domem. Energetická třída „G“ je uvedena dočasně, vzhledem k novele zákona č.406/2000Sb. o hospodaření s energií, po dodání podkladů bude uvedena skutečná energetická třída této nemovitosti. V případě zájmu mne neváhejte kontaktovat, rádi zajistíme i financování této nemovitosti. 
+### Kontakty
+### Status
+- 15.3.2022 poslany mail realitke kedy sa da obhliadka
+- Predbezne prehliadka piatok 15:00
+- Provizia standardne 5% ale pri drahsich sa vieme dohodnut
+### Otazky
+- Zapisy v katastri (zavazek neumoznit zapis noveho zast. prava misto stareho, zavazek nezajistit zast. pravo ve vyhodnejsim poradi novy dluh, zavazek zastavniho veritele nepozadat o vymaz zastav. prava)?
+    - toto znamena, ze na dome je hypo (cca 1,5mil), banky si to medzi sebou prehodia
+- Moze sa platit hypotekou?
+- Aky tam je internet?
+- Co je za branickou na zahrade?
+
 ## [Hevlín, okres Znojmo](https://www.sreality.cz/detail/prodej/dum/rodinny/hevlin-hevlin-/4114086236)
 ![chyza4.png](attachments/chyza4.png)
 
