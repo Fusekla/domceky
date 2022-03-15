@@ -10,8 +10,14 @@
 ### Kontakty
 ### Status
 - 15.3.2022 poslany mail realitke kedy sa da obhliadka
+- Predbezne prehliadka piatok 15:00
+- Provizia standardne 5% ale pri drahsich sa vieme dohodnut
 ### Otazky
 - Zapisy v katastri (zavazek neumoznit zapis noveho zast. prava misto stareho, zavazek nezajistit zast. pravo ve vyhodnejsim poradi novy dluh, zavazek zastavniho veritele nepozadat o vymaz zastav. prava)?
+    - toto znamena, ze na dome je hypo (cca 1,5mil), banky si to medzi sebou prehodia
+- Moze sa platit hypotekou?
+- Aky tam je internet?
+- Co je za branickou na zahrade?
 ## [Hevlín, okres Znojmo](https://www.sreality.cz/detail/prodej/dum/rodinny/hevlin-hevlin-/4114086236)
 ![chyza4.png](attachments/chyza4.png)
 
