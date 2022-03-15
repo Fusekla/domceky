@@ -23,8 +23,18 @@ Dům je napojen na veškeré sítě a je připraven k okamžitému nastěhován�
 Obec Hevlín má velmi dobrou dopravní dostupnost do Rakouska a do Znojma. Do Brna trvá cesta autem jen 45 minut. V Hevlíně žije zhruba 1.500 obyvatel a má plnou občanskou vybavenost - mateřská škola, základní škola až do deváté třídy, několik obchodů a restaurací.
 
 - poznamka 1
+
+### Kontakty
+- RK
+    Eliška Sladká
+    +420 724 705 706
+    reality@matiti.cz
 ### Status
 - 15.3.2022 poslany mail realitke kedy sa da obhliadka
+- Realitacka posle emailom niekolko terminov na vyber
+
+### Otazky
+- hé?
 
 ## [# Doubravník, okres Brno-venkov](https://www.sreality.cz/detail/prodej/dum/rodinny/doubravnik--/3814209628)
 ![chyza3.png](attachments/chyza3.png)
