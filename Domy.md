@@ -103,6 +103,35 @@ Obec Výrovice leží cca 13km severně od města Znojma a cca 65 km od Brna, ú
 ### Status
 ### Otazky
 
+## [Lešany, okres Prostějov](https://www.sreality.cz/detail/prodej/dum/na-klic/lesany-lesany-/4009188188)
+![chyza7](attachments/chyza7.png)
+**6 172 522 Kč**
+>Pokud hledáte bydlení v klidné lokalitě, máme právě pro Vás vhodnou nabídku. Nabízíme Vám dům, který splní Vaše veškerá očekávání. Jedná se o novostavbu rodinného domu 4+kk ( popř.5+kk), se sedlovou střechou, který je součástí projektu výstavby osmi solitérních domů, nízkoenergetických dřevostaveb, s vysokou kvalitou provedené práce i použitých materiálů . Projekt je situován v centru obce Lešany. Domy jsou navržené tak, aby vytvořily ulici, v níž bude radost bydlet. Jsou umístěné tak, aby obyvatelé každého z nich měli maximum soukromí na své zahradě a možnost ji plnohodnotně využívat. Nabízený dům má užitnou plochu 94 m2, je situován na vlastním pozemku o velikosti cca 686 m2. Prakticky navržená dispozice poskytne budoucímu majiteli naprosté pohodlí. Vstup do domu je přes chodbu, ve které je počítáno s prostorem pro šatní skříň. Z ní vedou dveře do technické místnosti a do další chodby, ze které se vchází do prosvětleného a prostorného obývacího pokoje s kuchyní, který je koncipovaný jako organický celek určený pro společné chvíle se vstupem na zahradu. Z chodby vedou dveře dále do koupelny s WC a do tří samostatných pokojů, které poskytnou klid a soukromí jednotlivým členům rodiny. Dispozici můžete vybírat ze čtyř připravených variant.
+V rámci projektu bude vybudovaná nová komunikace s parkovacími stáními a přípojkami vodovodu, kanalizace, elektřiny i plynu.
+Projekt je v přípravě, takže jsou možné dispoziční změny dle přání klienta.
+Do Lešan se dostanete po 8 min jízdy autem z Prostějova, 27 min z Olomouce a do blízkého Kostelce na Hané, kde je veškerá občanská vybavenost, Vám bude stačit 5 min.
+Výše uvedená cena je za pozemek 686 m2 , výstavbu RD ke kompletnímu dokončení a provizi RK. Cena za dokončený dům včetně zařizovacích předmětů sanity, obkladů, dlažby, podlahové krytiny PVC, vnitřních dveří a výmalby interiérů je 6.556.658,- Kč. Další podrobnosti na www.domylesany.cz.
+Lze financovat hypotečním úvěrem s měsíční splátkou 23.542,- Kč se splatností 30 let. Financování zajistíme přes našeho finančního specialistu a můžeme Vám pomoci i s prodejem Vaší stávající nemovitosti. Pro více informací nás neváhejte kontaktovat.
+### Kontakty
+### Status
+### Otazky
+
+## [Doubí, Přerov - Přerov XI-Vinary](https://www.sreality.cz/detail/prodej/dum/rodinny/prerov-prerov-xi-vinary-doubi/1392769116)
+![chyza8](attachments/chyza8.png)
+**5 777 800 Kč (bez provize RK)**
+>K prodeji hrubá stavba sam. stoj. RD s pozemkem, ve vyjimečné lokalitě- pod čekyňským kopcem. Přírodní lokalita na okraji obce Vinary, s výbornou dostupností do PR i Ol., s napojením na dálnici D 1. V nabídce 3 varianty RD (4+kk s 2-gar., 4+kk bez gar., 5+kk s 2-gar.) Počátek stavby jaro 2022, dokončení dle požadavku kupujícího. Možnost dokončení celé stavby na klíč. Pro kupujícího možnost ovlivnit volbu uspořádání příček, podlahových krytin, obkladů stěn, zařizovacích předmětů, dveří, kuchyňské linky, maleb. Prodejní cena je cena vč. DPH, (bez provize RK) hrubé stavby domu, pozemku pod domem a okolo domu, dopravní a technické infrastuktury. V ceně hrubé stavby je : zákl. deska, svislé nosné zdivo, příčky, vazníkový krov vč. zastřešení plechové šablony, okapy, 5-ti komorová okna Vekra, vchodové dveře bezp. tř. 3, garážová vrata. Přípojky inž. sítí přivedeny ke stavbě domu. Podrobnější informace k výstavbě na vyžádání. K dispozici 8 domů, další 4 domy již prodány. PENB B.
+### Kontakty
+### Status
+### Otazky
+
+## [Chvalnov-Lísky, okres Kroměříž](https://www.sreality.cz/detail/prodej/dum/rodinny/chvalnov-lisky--/3154528348)
+![chyza9](attachments/chyza9.png)
+**6 200 000 Kč**
+>Nabízíme k prodeji nadstandardní novostavbu přízemního rodinného domu dispozičně řešenou jako 4+kk s prostornou garáží a letní kuchyní v krásném prostředí na úpatí vrchoviny Chřiby v obci Chvalnov. Vstup do domu je chodbou, následuje obývací pokoj s kuchyňským koutem, pokoj, ložnice s prostornou šatnou, koupelna s plánovanou vanou, sprchovým koutem, umyvadlem a WC. V technické místnosti je příprava na instalaci centrálního vysavače, kombinovaného elektrokotle s akumulační nádobou na TUV, ventilového systému podlahového vytápění a umístěním pro pračku se sušičkou. Dále je samostatný pokoj s koupelnou s plánovaným sprchovým koutem, umyvadlem a WC. Garáž s elektrickými rolovacími garážovými vraty je prostorná pro parkování dvou aut a skladování. Dům ve tvaru písmene "L" vystavěný z broušeného cihelného bloku Porotherm s kvalitními dřevěnými bezúdržbovými okny s trojskly splňuje parametry nízkoenergetického domu. Podlahy jsou betonové a na stropech je nainstalována konstrukce pro montáž sádrokartonových stropů. Vytápění domu a ohřev TUV je plánováno kombinovaným elektrokotlem s napojením na teplovodní podlahové vytápění a krbovými kamny v obývacím pokoji. Všechny pokoje budou klimatizovány, ve všech jsou rozvody centrálního vysavače a optického kabelu. V domě je třífázová elektřina, plyn je přivedený do domu a odpady jsou napojeny na domovní ČOV. Dům je také připojený na hloubenou studnu pro čerpání užitkové vody a ze které je také voda rozvedena pro zavlažování zahrady. V křídle domu je letní kuchyně s přípravou na koupelnu se sprchovým koutem, umyvadlem, WC, kuchyňskou linku, vstup do sklepa (9 m2) a místnost na dílnu. Za domem je velká oplocená zahrada, na kterou celý den svítí slunce, osázená ovocnými stromy s hospodářskou budovou, skleníkem, udírnou, ohništěm a s krásným výhledem na vrchovinu Chřiby a na přilehlý rybník s možností rybolovu. Z obce je velmi dobré napojení na silnici E50 3,5 km (3 min.) Vzdálenost do Brna je 54 km (49 min.) a do Uherského Hradiště 27 km (24 min.).
+### Kontakty
+### Status
+### Otazky
+
 ## [Template](dummy.link)
 ![obrazok](attachments/template.png)
 **Cena**
