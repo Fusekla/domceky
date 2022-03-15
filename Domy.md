@@ -1,9 +1,10 @@
 ## [Tvořihráz, okres Znojmo](https://www.sreality.cz/detail/prodej/dum/rodinny/tvorihraz--/842344540)
 ![chyza5.png](attachments/chyza5.png)
 
-**8 400 000 Kč (+ provize RK)**
+**8 400 000 Kč (+ provize RK)**
 >Nabízíme k prodeji novostavbu zděného rodinného domu v obci Tvořihráz, okr. Znojmo. Dům s dispozicí 4+kk, zahradou a dvojgaráží je zasazen do původní, řadové zástavby, je dořešen do posledního detailu, včetně zahrady, a noví majitelé budou jen bydlet. Dům je vystavěn s důrazem malou energetickou náročnost, provozní náklady celého jsou cca 4.000 Kč/měs., je připojen na veřejný vodovod, kanalizaci a elektřinu. Na pozemku je vlastní studna. Vytápění domu zajišťuji infrapanely, které doplňuje krb v obývacím pokoji. Krb je obsluhován ze zvláštní místnosti u vstupní chodby, tzn. že si v obývacím pokoji užíváte teplo krbu bez nepořádku. Obytná část domu je rozdělena do dvou podlaží, v 1.NP podlaží je vstupní chodba se vstupem do místnosti pro obsluhu krbu, technická místnost s pračkou a sušičkou, koupelna s vanou a sprchovým koutem – 9 m2, samostatná toaleta i s pisoárem, ložnice se dvěma šatnami, obývací pokoj s kuchyní a jídelnou – 39 m2. Z obývacího pokoje je vstup přilehlou terasu – 40 m2. Ve 2.NP jsou dva pokoje – 17, 16 m2 a toaleta. Celý dům je klimatizován. Před domem je dvojgaráž, třetí auto může případně parkovat v krytém průjezdu na dvůr. Mezi domem a zahradou je dílna. Zahrada má vytvořené terasy, chodníky a na konci ještě jednu oddechovou zónu. Plocha zahrady je 203 m2, celého pozemku 624 m2. Dům je ihned volný.
 - klimatizovany, upravena zahrada
+### Kontakty
 ### Status
 - 15.3.2022 poslany mail realitke kedy sa da obhliadka
 ### Otazky
@@ -11,7 +12,7 @@
 ## [Hevlín, okres Znojmo](https://www.sreality.cz/detail/prodej/dum/rodinny/hevlin-hevlin-/4114086236)
 ![chyza4.png](attachments/chyza4.png)
 
-**6 350 000 Kč (Cena je včetně provize, provizi platí prodávající)**
+**6 350 000 Kč (Cena je včetně provize, provizi platí prodávající)**
 >Exkluzivně nabízíme k prodeji nízkoenergetickou novostavbu rodinného domu 4+kk v Hevlíně v okrese Znojmo. Jedná se o přízemní dům, který je součástí dvojdomu. Celková podlahová plocha domu včetně terasy činí 106,6 m2. Celková plocha pozemku je 570 m2 (zastavěná plocha 136 m2 a zahrada 434 m2)
 Dispozice domu:
 Vstupní chodba 4,6 m2, technická místnost 5,5 m2, obývací pokoj s kuchyňským koutem 34,9 m2, ložnice 12,9 m2, pokoj 14 m2 a další pokoj 12,7 m2, koupelna 7,1 m2 a terasa 14,9 m2. V koupelně je vana i sprcha. Celková podlahová plocha domu je 106,6 m2 včetně terasy 14,9 m2. K domu náleží pozemek před domem se zámkovou dlažbou připravený na parkování a oplocená zahrada za domem - celkem 434 m2. Na terasu je vyvedena elektřina i voda v nezámrzném systému.
@@ -39,18 +40,21 @@ Obec Hevlín má velmi dobrou dopravní dostupnost do Rakouska a do Znojma. Do B
 ## [# Doubravník, okres Brno-venkov](https://www.sreality.cz/detail/prodej/dum/rodinny/doubravnik--/3814209628)
 ![chyza3.png](attachments/chyza3.png)
 
-**7 990 000 Kč**
+**7 990 000 Kč**
 >Jako přímý projektant tohoto domu nabízím k prodeji samostatně stojící jednopodlažní novostavbu nízkoenergetického rodinného domu před dokončením dispoziční velikosti 4 + kk (zastavěná plocha 136 m2, užitná plocha 105 m2, obytná plocha 82 m2) v obci Doubravník. Stavba je situována na pozemcích o celkové ploše 989 m2 (z toho je 136 m2 zastavěno RD). Součástí prodeje je skladovací objekt s hygienickým zázemím na pozemku stavby.
 Stavba je řešena jako zděná z pórobetonových tvárnic opatřených kontaktním zateplovacím systémem z polystyrenu. Rodinný dům je zastřešen sedlovou střechou. Okenní výplně, vstupní a balkonové dveře jsou provedeny jako plastové s izolačním trojsklem, střešní krytina je pálená keramická.
 Rodinný dům je připojen k veřejnému řádu splaškové kanalizace a veřejnému vodovodnímu řádu. Přípojka NN je ze strany provozovatele distribuční soustavy v povolovacím řízení. Dešťové vody jsou zaústěny do vsaku na pozemku stavby.
 Vytápění rodinného domu je dle projektové dokumentace uvažováno teplovodním podlahovým systémem s elektrokotlem. Ohřev TV je uvažován elektrickým zásobníkovým ohřívačem. V objektu je realizováno komínové těleso pro možnost instalace krbových kamen nebo obezdívky krbové vložky.
 Dokončení rodinného domu zahrnuje provedení podlahových konstrukcí včetně nášlapných vrstev, keramických obkladů stěn hygienického zázemí, montáž interiérových dveří včetně obložkových zárubní, vybavení koupelny a WC zařizovacími předměty, dodávku a montáž elektrokotle a el. zásobníkového ohřívače, instalaci svítidel a kompletačních materiálů.
 Rodinný dům jsem projektoval a následně zpracoval podklady pro povolení stavby. Mohu tedy poskytovat relevantní informace. Dále nabízím možnost zpracování podkladů pro závěrečnou kontrolní prohlídku stavby (kolaudaci), případně zapracovat změny při dokončení stavby oproti projektové dokumentaci. Bližší informace rád poskytnu. Poznámka k ceně: 7 990 000,-Kč/za nemovitost + 300 000,-Kč provize RK.
+### Kontakty
+### Status
+### Otazky
 
 ## [Hevlín 2, okres Znojmo](https://www.sreality.cz/detail/prodej/dum/rodinny/hevlin--/77433180)
 ![chyza2.png](attachments/chyza2.png)
 
-**7 400 000 Kč + provize**
+**7 400 000 Kč + provize**
 >Cena uvedena včetně dokončení RD a kolaudace (zajistí majitel)!
 Inzerát budeme průběžně aktualizovat a přidávat foto z průběhu výstavby.
 Předpokládaný termín dokončení stavby + kolaudace : konec srpna 2022
@@ -71,9 +75,38 @@ V případě Vašeho zájmu Vám nezávazně zjistíme možnosti financování n
 Více informací telefonicky nebo emailem u makléřky.
 Cena činí 7.400.000 Kč + provize.
 *) V případě více zájemců si prodávající vyhrazuje právo výběru kupujícího dle svého uvážení.
+### Kontakty
+### Status
+### Otazky
 
 ## [Šanov, okres Znojmo](https://www.sreality.cz/detail/prodej/dum/rodinny/sanov--/3251915356)
 ![chyza1.png](attachments/chyza1.png)
 
-**6 326 700 Kč**
+**6 326 700 Kč**
 >Ve výhradním zastoupení majitele vám nabízím k prodej dům v Šanově o dispozici 5+kk s pozemkem 1051 m2. Jedná se o rovinatý terén. Dům se prodává jako hrubá stavba, jejíž součástí je terasa 20m2, střecha a kvalitní okna s trojsklem. Dům je zateplen 16cm polystyrénem, který je natažen do perlinky a lepidla. V domě jsou vystavěny příčky. Velkou výhodou je možnost napojení domu na optický datový kabel. Na přání zákazníka může firma dům dostavět podle jeho představ. Hrubá stavba je již dokončena a v tomto stavu se prodává. Cenovou nabídku dostavby firmou si můžete vyžádat u makléře. Domek se nachází pár minut od úplné základní školy. V této lokalitě je lesopark, kde jsou cyklotrasy vhodné na in-line brusle, kolo či procházku a sportcentrum. Pokud vás naše nabídka zaujala, neváhejte kontaktovat makléře. Případně vám pomůžeme i s financováním této nemovitosti.
+### Kontakty
+### Status
+### Otazky
+
+## [Výrovice, okres Znojmo](https://www.sreality.cz/detail/prodej/dum/rodinny/vyrovice--/2054453340)
+![chyza6.png](attachments/chyza6.png)
+**8 068 000 Kč**
+>Rezidenční výstavba moderních domů Domy Výrovice dává prostor celé rodině. Cílem projektu je výstavba velkoryse řešených domů praktických dispozic, které budou splňovat představy a požadavky náročných majitelů. V novém projektu Domy Výrovice bude vybudováno celkem 7 nových rodinných domů s uspořádáním 5+kk, kde je možno vybírat ze dvou typů domů o velikosti 202 m² - 236 m² podlahové plochy. Ke každému domu náleží pozemek o průměrné velikosti 650 m² a garáž pro 2 auta.
+V rámci projektu Vám nabízíme k prodeji rodinný dům č. 1, o dispozici 5+kk a podlahové ploše 202 m2. Jedná se o novostavbu dvoupodlažního domu s garáží pro 2 auta, parkovacím stáním a zahradou o velikost 643 m2.
+V přízemí se nachází prostorný obývací pokoj s kuchyní a přímým vstupem na terasu zahrady; pracovna/pokoj, WC, technická místnost, garáž a sklad. V 2. nadzemním podlaží jsou situovány 3 ložnice, prostorná koupelna a šatna.
+Dům bude dokončen ve variantě standardu dle výběru nového majitele.
+Dokončení a předání výstavby je do 12 měsíců od uzavření Smlouvy o smlouvě budoucí kupní. Pro informace o standardech a technickém vybavení domu neváhejte volat. Cena je uvedena za kompletně dokončený dům ve standardu, včetně oplocení zahrady.
+Soubor samostatně stojících rodinných domů je ideálním bydlením pro všechny, kteří hledají pohodlný a klidný styl života v těsném dosahu města Znojma.
+Obec Výrovice leží cca 13km severně od města Znojma a cca 65 km od Brna, údolí nad obcí vyplňuje Výrovická přehrada. Obec je významnou rekreační oblastí regionu.
+
+### Kontakty
+### Status
+### Otazky
+
+## [Template](dummy.link)
+![obrazok](attachments/template.png)
+**Cena**
+>Popis
+### Kontakty
+### Status
+### Otazky
