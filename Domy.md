@@ -6,6 +6,8 @@
 - klimatizovany, upravena zahrada
 ### Status
 - 15.3.2022 poslany mail realitke kedy sa da obhliadka
+### Otazky
+- Zapisy v katastri (zavazek neumoznit zapis noveho zast. prava misto stareho, zavazek nezajistit zast. pravo ve vyhodnejsim poradi novy dluh, zavazek zastavniho veritele nepozadat o vymaz zastav. prava)?
 ## [Hevlín, okres Znojmo](https://www.sreality.cz/detail/prodej/dum/rodinny/hevlin-hevlin-/4114086236)
 ![chyza4.png](attachments/chyza4.png)
 
