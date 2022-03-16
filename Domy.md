@@ -18,7 +18,7 @@
 - Moze sa platit hypotekou?
 - Aky tam je internet?
 - Co je za branickou na zahrade?
-
+---
 ## [Tvořihráz 2, okres Znojmo](https://reality.idnes.cz/detail/prodej/dum/tvorihraz/620cc47d2747e44ed9052b54/)
 ![chyza10.png](attachments/chyza10.png)
 
@@ -38,7 +38,7 @@
 - Moze sa platit hypotekou?
 - Aky tam je internet?
 - Co je za branickou na zahrade?
-
+---
 ## [Hevlín, okres Znojmo](https://www.sreality.cz/detail/prodej/dum/rodinny/hevlin-hevlin-/4114086236)
 ![chyza4.png](attachments/chyza4.png)
 
@@ -68,7 +68,7 @@ Obec Hevlín má velmi dobrou dopravní dostupnost do Rakouska a do Znojma. Do B
 
 ### Otazky
 - hé?
-
+---
 ## [# Doubravník, okres Brno-venkov](https://www.sreality.cz/detail/prodej/dum/rodinny/doubravnik--/3814209628)
 ![chyza3.png](attachments/chyza3.png)
 
@@ -84,7 +84,7 @@ Rodinný dům jsem projektoval a následně zpracoval podklady pro povolení sta
 ### Kontakty
 ### Status
 ### Otazky
-
+---
 ## [Hevlín 2, okres Znojmo](https://www.sreality.cz/detail/prodej/dum/rodinny/hevlin--/77433180)
 ![chyza2.png](attachments/chyza2.png)
 
@@ -114,7 +114,7 @@ Cena činí 7.400.000 Kč + provize.
 ### Kontakty
 ### Status
 ### Otazky
-
+---
 ## [Šanov, okres Znojmo](https://www.sreality.cz/detail/prodej/dum/rodinny/sanov--/3251915356)
 ![chyza1.png](attachments/chyza1.png)
 
@@ -125,7 +125,7 @@ Cena činí 7.400.000 Kč + provize.
 ### Kontakty
 ### Status
 ### Otazky
-
+---
 ## [Výrovice, okres Znojmo](https://www.sreality.cz/detail/prodej/dum/rodinny/vyrovice--/2054453340)
 ![chyza6.png](attachments/chyza6.png)
 
@@ -143,7 +143,7 @@ Obec Výrovice leží cca 13km severně od města Znojma a cca 65 km od Brna, ú
 ### Kontakty
 ### Status
 ### Otazky
-
+---
 ## [Lešany, okres Prostějov](https://www.sreality.cz/detail/prodej/dum/na-klic/lesany-lesany-/4009188188)
 ![chyza7](attachments/chyza7.png)
 
@@ -159,7 +159,7 @@ Lze financovat hypotečním úvěrem s měsíční splátkou 23.542,- Kč se spl
 ### Kontakty
 ### Status
 ### Otazky
-
+---
 ## [Doubí, Přerov - Přerov XI-Vinary](https://www.sreality.cz/detail/prodej/dum/rodinny/prerov-prerov-xi-vinary-doubi/1392769116)
 ![chyza8](attachments/chyza8.png)
 
@@ -170,7 +170,7 @@ Lze financovat hypotečním úvěrem s měsíční splátkou 23.542,- Kč se spl
 ### Kontakty
 ### Status
 ### Otazky
-
+---
 ## [Chvalnov-Lísky, okres Kroměříž](https://www.sreality.cz/detail/prodej/dum/rodinny/chvalnov-lisky--/3154528348)
 ![chyza9](attachments/chyza9.png)
 
@@ -183,7 +183,19 @@ Lze financovat hypotečním úvěrem s měsíční splátkou 23.542,- Kč se spl
 ### Kontakty
 ### Status
 ### Otazky
+---
+## [Hostěradice - Chlupice, okres Znojmo](https://www.sreality.cz/detail/prodej/dum/rodinny/hosteradice-chlupice-/3961252188)
+![chyza11](attachments/chyza11.png)
 
+**5 299 000 Kč + provize RK**
+
+**50 minut**
+>Ve výhradním zastoupením Vám nabízíme novou dřevostavbu 4+kk v malebné obci Hostěradice, postavenou v roce 2014. Obec je v krátké dojezdové vzdálenosti od města Znojma a 35 minut od Brna. Útulný dům je o dispozici 4+kk, celkové zastavěné ploše 103 m2 a užitné ploše 87 m2. Dva pokoje s výhledem do ulice mohou sloužit například jako pracovna a dětský pokoj. Obývací pokoj s kuchyní, orientovaný do zahrady, se vstupy na obě terasy, Vám naopak nabídne maximální soukromí. Kuchyňský kout je vybaven moderními, zabudovanými spotřebiči – troubou, lednicí, mikrovlnnou troubou a digestoří. Indukční deska a myčka jsou dokonce úplně nové z loňského roku. V obývacím pokoji jsou kvalitní kamna na pelety, která jsou připojena na elektřinu. Tento účinný a ekologický typ vytápění pak doplňují moderní elektrické přímotopy ve všech místnostech. Prosluněná ložnice je také orientovaná do klidu zahrady, užít si tak můžete dlouhé noci nerušeného spánku. V koupelně je jak vana, pro milovníky dlouhých koupelí, tak i sprchový kout. K domu náleží garáž s elektrickými vraty a přístřešek pro další parkování. Velká zahrada o rozloze 836 m2, s ovocnými stromky, je jinak doslova nepopsaným listem. Můžete zde trávit letní večery při posezení u ohniště, vystavět zde altán, pergolu nebo bazén, pro zahradníky je tu spousta prostoru pro záhony, nebo skleníky a stále zbývá místo pro radovánky s dětmi. Zůstává zde i příprava na jezírko a houpačka. Obec Hostěradice je malebná lokalita s dobrou občanskou vybaveností. Bývalí majitelé si pochvalovali, jaký tu panuje klid a soukromí. Asi 200 metrů uličkami mimo provoz jsou mateřská a základní škola (1. stupeň), velmi blízko jsou také obchody, lékárna, pošta, knihovna a restaurace. V obci je i kulturní dům, v jehož prostorách se nachází velký sál vhodný pro pořádání kulturních i společenských akcí, u „Starého lomu“ je i osada se zvířaty. Ke sportovnímu vyžití v obci slouží fotbalové hřiště, dětské hřiště hned vedle domu a školní tělocvična.
+- je tam kozub
+### Kontakty
+### Status
+### Otazky
+---
 ## [Template](dummy.link)
 ![obrazok](attachments/template.png)
 
