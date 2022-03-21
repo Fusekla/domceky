@@ -41,6 +41,33 @@ Obec Hevlín má velmi dobrou dopravní dostupnost do Rakouska a do Znojma. Do B
 ### Status
 ### Otazky
 ---
+## [# Benešov, okres Blansko](https://www.sreality.cz/detail/prodej/dum/rodinny/benesov--/1016437084)
+![chyza12](attachments/chyza12.png)
+
+**8 860 000 Kč (vratane 360k provizie)**
+
+**45 minut**
+>Rádi bychom Vám představili bydlení pro rodinu, které jste si vždy přáli. Jedinečný a velmi hezký bungalov s dispozicemi 4+kk na zastavěné ploše 144 m2 splňuje všechny požadavky k hezkému bydlení.
+Hlavní výhody:
+Rozlehlý obytný prostor s kuchyňským koutem
+Tři samostatné pokoje oddělené chodbou
+Moderní koupelna a samostatné WC
+Technická místnost
+Krbová vložka s rozvodem tepla do všech pokojů
+Podlahové vytápění
+Dům prošel v loňském roce modernizací všech podlah (vinyl), obložek, dveří a koupelny. Prostorná a světlá nemovitost má své kouzlo. Zaujmou Vás designové prvky, velká kuchyňská linka i luxusní koupelna. Vstup na rovinatou zahradu je z obývacího prostoru.
+Zahrada má výměru cca 771 m2. Děti si jistě užijí prostor, zapuštěný bazén a dětskou chatku. Dospělý zase ocení zastřešenou pergolu u domu s hezkým pohledem.
+Před domem je okrasný záhon a parkovací stání vydlážděné zámkovou dlažbou, kde může pohodlně zaparkovat i návštěva. K otvírání brány na pozemek slouží elektrický pohon vrat.
+Obec Benešov leží pouze 12 km od Boskovic. Nachází na náhorní rovince Drahanské vrchoviny mezi vrcholy Paprčem a Skalkami. Je zde dobrá občasná vybavenost jako mateřská a základní škola, prodejna potravin, hospoda a zdravotní středisko. Okolní malebná krajina okouzlí všechny příznivce sportu nebo procházek.
+### Kontakty
+**[Veronika Mlčochová](https://www.sreality.cz/adresar/okno-nemovitosti-blansko/10024/makleri/94469)**
+
+-    ![](https://www.sreality.cz/img/icon-phone.svg) +420 731 139 583
+-    ![](https://www.sreality.cz/img/icon-email.svg) [veronika.mlcochova@rkokno.cz](mailto:veronika.mlcochova@rkokno.cz)
+### Status
+- obhliadka 22.3. 15:00
+### Otazky
+---
 ## [Template](dummy.link)
 ![obrazok](attachments/template.png)
 
