@@ -25,6 +25,14 @@ Obec Hevlín má velmi dobrou dopravní dostupnost do Rakouska a do Znojma. Do B
 ### Status
 - 15.3.2022 poslany mail realitke kedy sa da obhliadka
 - Realitacka posle emailom niekolko terminov na vyber
+- Obhliadka done
+	- Je to dost z ruky, ale zakladne veci v dedine su
+	- Bude treba
+		- Fotovoltaika
+		- Klima
+		- Casom mozno kozub
+		- Kuchyna
+		- Zahrada
 
 ### Otazky
 - hé?
@@ -38,7 +46,12 @@ Obec Hevlín má velmi dobrou dopravní dostupnost do Rakouska a do Znojma. Do B
 >Ve výhradním zastoupením Vám nabízíme novou dřevostavbu 4+kk v malebné obci Hostěradice, postavenou v roce 2014. Obec je v krátké dojezdové vzdálenosti od města Znojma a 35 minut od Brna. Útulný dům je o dispozici 4+kk, celkové zastavěné ploše 103 m2 a užitné ploše 87 m2. Dva pokoje s výhledem do ulice mohou sloužit například jako pracovna a dětský pokoj. Obývací pokoj s kuchyní, orientovaný do zahrady, se vstupy na obě terasy, Vám naopak nabídne maximální soukromí. Kuchyňský kout je vybaven moderními, zabudovanými spotřebiči – troubou, lednicí, mikrovlnnou troubou a digestoří. Indukční deska a myčka jsou dokonce úplně nové z loňského roku. V obývacím pokoji jsou kvalitní kamna na pelety, která jsou připojena na elektřinu. Tento účinný a ekologický typ vytápění pak doplňují moderní elektrické přímotopy ve všech místnostech. Prosluněná ložnice je také orientovaná do klidu zahrady, užít si tak můžete dlouhé noci nerušeného spánku. V koupelně je jak vana, pro milovníky dlouhých koupelí, tak i sprchový kout. K domu náleží garáž s elektrickými vraty a přístřešek pro další parkování. Velká zahrada o rozloze 836 m2, s ovocnými stromky, je jinak doslova nepopsaným listem. Můžete zde trávit letní večery při posezení u ohniště, vystavět zde altán, pergolu nebo bazén, pro zahradníky je tu spousta prostoru pro záhony, nebo skleníky a stále zbývá místo pro radovánky s dětmi. Zůstává zde i příprava na jezírko a houpačka. Obec Hostěradice je malebná lokalita s dobrou občanskou vybaveností. Bývalí majitelé si pochvalovali, jaký tu panuje klid a soukromí. Asi 200 metrů uličkami mimo provoz jsou mateřská a základní škola (1. stupeň), velmi blízko jsou také obchody, lékárna, pošta, knihovna a restaurace. V obci je i kulturní dům, v jehož prostorách se nachází velký sál vhodný pro pořádání kulturních i společenských akcí, u „Starého lomu“ je i osada se zvířaty. Ke sportovnímu vyžití v obci slouží fotbalové hřiště, dětské hřiště hned vedle domu a školní tělocvična.
 - je tam kozub
 ### Kontakty
+**[Jakub Vokřál](https://www.sreality.cz/adresar/broker-consulting-a-s-plzen-vychodni-predmesti/18938/makleri/223406)**
+
+-    ![](https://www.sreality.cz/img/icon-phone.svg) 800 100 164
+-    ![](https://www.sreality.cz/img/icon-email.svg) [okrealitnisluzby@bcas.cz](mailto:okrealitnisluzby@bcas.cz)
 ### Status
+- mail sent 22.3.
 ### Otazky
 ---
 ## [# Benešov, okres Blansko](https://www.sreality.cz/detail/prodej/dum/rodinny/benesov--/1016437084)
