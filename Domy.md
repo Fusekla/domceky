@@ -115,7 +115,7 @@ Cena je uvedena za dokončený RD na klíč, bez oplocení, kuchyňské linky a 
 ### Status
 ### Otazky
 ---
-## [# Lhotsko, okres Zlín](https://www.sreality.cz/detail/prodej/dum/na-klic/lhotsko-lhotsko-/2407397980)
+## [Lhotsko, okres Zlín](https://www.sreality.cz/detail/prodej/dum/na-klic/lhotsko-lhotsko-/2407397980)
 ![chyza15](attachments/chyza15.png)
 
 **6 645 500 Kč**
