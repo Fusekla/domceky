@@ -81,6 +81,25 @@ Obec Benešov leží pouze 12 km od Boskovic. Nachází na náhorní rovince Dra
 - obhliadka 22.3. 15:00
 ### Otazky
 ---
+## [Letovice - Zábludov, okres Blansko](https://www.sreality.cz/detail/prodej/dum/rodinny/letovice-zabludov-/337230172)
+![chyza13](attachments/chyza13.png)
+
+**6 795 000 Kč**
+
+**37 minut**
+>Dům se nachází ve fázi výstavby s termínem dokončení 6/2022, po dohodě se stavebníkem možné úpravy dle Vašich požadavků.
+Jedná se o dvoupodlažní nemovitost s podlahovou plochou 173 m2 dvojgaráží v domě na pozemku o výměře 405 m2.
+Výborná dopravní dostupnost do Letovic 2km, Boskovic 12 km, Svitav 25 km a Brna 35 km.
+Cena je uvedena za dokončený RD na klíč, bez oplocení, kuchyňské linky a zahradních úprav. 
+
+### Kontakty
+**Marrow Estate s.r.o. Marek Šášek**
+
+-    ![](https://www.sreality.cz/img/icon-phone.svg) +420 704 693 859
+-    ![](https://www.sreality.cz/img/icon-email.svg) [marrowestate@email.cz](mailto:marrowestate@email.cz)
+### Status
+### Otazky
+---
 ## [Template](dummy.link)
 ![obrazok](attachments/template.png)
 
