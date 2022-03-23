@@ -100,7 +100,37 @@ Cena je uvedena za dokončený RD na klíč, bez oplocení, kuchyňské linky a 
 ### Status
 ### Otazky
 ---
-## [Template](dummy.link)
+## [Nová, Morkovice-Slížany - Morkovice](https://www.sreality.cz/detail/prodej/dum/rodinny/morkovice-slizany-morkovice-nova/3518425436)
+![chyza14](attachments/chyza14.png)
+
+**7 580 000 Kč**
+
+**50 minut**
+>Novostavba rodinného domu. Jedná se o řadový, koncový, přízemní s obytným podkrovím, 5+kk s garáží. RD je kolaudován v roce 2016, je zděný z tvárnic YTONG tl.45 bez dodatečného zateplení, okna a dveře plastová s trojsklem, střecha sedlová, krytina plechová SATJAM, střešní okna plastová VELUX. Garáž je samostatně řešena jako dřevostavba. Dispozičně v přízemí : vstup, chodba se schodištěm, koupelna se sprchovým koutem + WC, komora, ložnice, obývací pokoj s kuchyní, v podkroví: 3 x pokoj, koupelna s rohovou vanou a sprchovým koutem + WC. Celková podlahová plocha je 110m2 + 21m2 garáž. Vytápění je elektřinou, podlahovým topením s topnými kabely s termostaty v každé místnosti, ohřev TUV je el. boilerem 125l. Ve dvou pokojích v podkroví je klimatizace. Ve dvorní části jsou tři přístřešky s možností posezení, vše vydlážděno zámkovou dlažbou. V zadní části je umístěna plechová hospodářská budova. Pozemek je komplet oplocen. Ve městě je komplet občanská vybavenost škola, školka, zdravotní středisko, městský úřad, koupaliště, sportovní areál.... Dostupnost na dálnici směr Brno nebo Zlín 7 km.
+### Kontakty
+**Stanislav Foltýn**
+
+-    ![](https://www.sreality.cz/img/icon-phone.svg) +420 777 109 138
+-    ![](https://www.sreality.cz/img/icon-email.svg) [fol.stan@seznam.cz](mailto:fol.stan@seznam.cz)
+### Status
+### Otazky
+---
+## [# Lhotsko, okres Zlín](https://www.sreality.cz/detail/prodej/dum/na-klic/lhotsko-lhotsko-/2407397980)
+![chyza15](attachments/chyza15.png)
+
+**6 645 500 Kč**
+
+**1h 30min**
+>Zprostředkujeme Vám exkluzivní prodej výstavby na klíč tipu Klára 5+kk, 93 m² na klíč v obci Lhotsko u Vizovic s pozemkem o velikosti 510 m², okres Zlín. Pozemek č.2 je mírně svažitý o rozměru cca 20 x 26m. Tento dům se sedlovou střechou je vhodný do nízké okolní zástavby. Jedná se o dřevostavbu, kdy je použita technologie plný Standard s energetickou třídou "A" a nabízí se ve variantě na klíč. Svými vnitřními prostory o užitné ploše 93 m² uspokojí nároky na bydlení 4-5 členné rodiny. Vhodná stavba o zastavěném rozměru 8x8m je ideální pro menší nebo úzké parcely. Topení je řešeno nízko nákladovým tepelným čerpadlem s kombinací rekuperace (řízené větrání). Díky energetické náročnosti je částka na provoz domu velmi nízká. Uvedená cena je za dům, pozemek, základovou desku, výstavbu inženýrských sítí, čističky odpadních vod a DPH. Cenou na klíč je myšleno veškeré poplatky za připojení, vyřízení stavebního povolení včetně nutné úhrady úřadům, nájezd k domu, parkovací stání, oplocení pletivem o výšce 1,8m, úprava terénu, zatravnění zahrady, projektové dokumentace a kolaudace. Po kolaudaci k okamžitému nastěhování. Obec Lhotsko je vyhledávaná lokalita se skvělou dostupností do okolních Vizovic, Zlína nebo Vsetína. Před pěti lety byl zprovozněn obchvat obce, tudíž se frekvence vozidel v obci snížila o 90 %. Financování zajistíme jak na pozemek, tak i na dům. Možnost změny stavebního materiálu na zděnou stavbu s doplatkem nebo dřevostavbu v plném standardu. Náklady na bydlení včetně vody cca do 2900,-Kč za měsíc. Délka výstavy cca 8 měsíců čistého stavebního času. Fotografie domu jsou ilustrativní ". Více typových domů najdete na zdenedomkynaklic.cz . V nabízené lokalitě je možné postavit pouze patrový dům a výstavba už dvou domů byla započata. Nabízím možnost si tento typový dům Klára prohlédnout v rozestavěném nebo hotovém stavu! Jedná se o poslední pozemek z této lokality. Ev. číslo: 29343.
+### Kontakty
+**[Petr Sedlařík](https://www.sreality.cz/adresar/home-4-people-ready-uhersky-brod/13495/makleri/49239)**
+
+-    ![](https://www.sreality.cz/img/icon-phone.svg) 606 765 159
+-    ![](https://www.sreality.cz/img/icon-email.svg) [sedlarik@home4people.cz](mailto:sedlarik@home4people.cz)
+### Status
+### Otazky
+---
+## [Template](dummy)
 ![obrazok](attachments/template.png)
 
 **Cena**
