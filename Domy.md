@@ -138,6 +138,7 @@ Cena je uvedena za dokončený RD na klíč, bez oplocení, kuchyňské linky a 
 **35 minut**
 >Nabízíme prodej dřevostavby 5+kk o celkové užitné ploše 149 m2 ve stupni hrubé stavby v obci Březské, 4km od Velké Bíteše a 25 min autem z Brna na pozemku parc.č.971/34 o celkové výměře 934m2. Stavba je situována v klidné části obce obklopené krásným prostředím lesů a rybníků. Předpokládané náklady na dokončení stavby jsou cca 1,9 mil Kč. Materiál na dostavbu nemovitosti v ceně 0,5 mil Kč je uskladněn v nemovitosti a je součástí kupní ceny.Stavební povolení končí v roce 2023. V obci se nachází obchod, mateřské školka, pohostinství. Ostatní občanská vybavenost je v nedaleké Velké Bíteši.V případě zájmu zajistíme stavební firmu k dokončení RD. Cena za nemovitost je 3 790 000,- Kč včetně pozemku.Uvedená cena je platná pouze do konce března 2022! V případě zájmu si sjednejte prohlídku s našim makléřem. Financování je zajištěno.
 - Cca 3-4 mesiace na dokoncenie stavby
+- Prehliadka 26.3. 14:00
 ### Kontakty
 - Pan Toman
 ### Status
