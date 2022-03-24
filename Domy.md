@@ -72,6 +72,7 @@ Dům prošel v loňském roce modernizací všech podlah (vinyl), obložek, dve�
 Zahrada má výměru cca 771 m2. Děti si jistě užijí prostor, zapuštěný bazén a dětskou chatku. Dospělý zase ocení zastřešenou pergolu u domu s hezkým pohledem.
 Před domem je okrasný záhon a parkovací stání vydlážděné zámkovou dlažbou, kde může pohodlně zaparkovat i návštěva. K otvírání brány na pozemek slouží elektrický pohon vrat.
 Obec Benešov leží pouze 12 km od Boskovic. Nachází na náhorní rovince Drahanské vrchoviny mezi vrcholy Paprčem a Skalkami. Je zde dobrá občasná vybavenost jako mateřská a základní škola, prodejna potravin, hospoda a zdravotní středisko. Okolní malebná krajina okouzlí všechny příznivce sportu nebo procházek.
+- Maklerka hovori, ze s cenou sa da hybat "docela vyrazne", mame dat navrh. Povedal som, ze sa ozveme v horizonte 1-2 tyzdnov (tj do 8.4.)
 ### Kontakty
 **[Veronika Mlčochová](https://www.sreality.cz/adresar/okno-nemovitosti-blansko/10024/makleri/94469)**
 
