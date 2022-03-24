@@ -48,7 +48,7 @@ Obec Hevlín má velmi dobrou dopravní dostupnost do Rakouska a do Znojma. Do B
 ### Kontakty
 **[Jakub Vokřál](https://www.sreality.cz/adresar/broker-consulting-a-s-plzen-vychodni-predmesti/18938/makleri/223406)**
 
--    ![](https://www.sreality.cz/img/icon-phone.svg) 800 100 164
+-    ![](https://www.sreality.cz/img/icon-phone.svg) +420 720 936 929
 -    ![](https://www.sreality.cz/img/icon-email.svg) [okrealitnisluzby@bcas.cz](mailto:okrealitnisluzby@bcas.cz)
 ### Status
 - mail sent 22.3.
@@ -91,7 +91,7 @@ Obec Benešov leží pouze 12 km od Boskovic. Nachází na náhorní rovince Dra
 Jedná se o dvoupodlažní nemovitost s podlahovou plochou 173 m2 dvojgaráží v domě na pozemku o výměře 405 m2.
 Výborná dopravní dostupnost do Letovic 2km, Boskovic 12 km, Svitav 25 km a Brna 35 km.
 Cena je uvedena za dokončený RD na klíč, bez oplocení, kuchyňské linky a zahradních úprav. 
-
+- Prehliadka 26.3. doobeda, cas ma byt upresneny v piatok poobede
 ### Kontakty
 **Marrow Estate s.r.o. Marek Šášek**
 
