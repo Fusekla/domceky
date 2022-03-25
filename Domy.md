@@ -50,7 +50,7 @@ Obec Hevlín má velmi dobrou dopravní dostupnost do Rakouska a do Znojma. Do B
 -    ![](https://www.sreality.cz/img/icon-phone.svg) +420 720 936 929
 -    ![](https://www.sreality.cz/img/icon-email.svg) [okrealitnisluzby@bcas.cz](mailto:okrealitnisluzby@bcas.cz)
 ### Status
-- mail sent 22.3.
+- Prehliadka 27.3. 12:30
 ### Otazky
 ---
 ## [# Benešov, okres Blansko](https://www.sreality.cz/detail/prodej/dum/rodinny/benesov--/1016437084)
