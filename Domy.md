@@ -91,7 +91,7 @@ Obec Benešov leží pouze 12 km od Boskovic. Nachází na náhorní rovince Dra
 Jedná se o dvoupodlažní nemovitost s podlahovou plochou 173 m2 dvojgaráží v domě na pozemku o výměře 405 m2.
 Výborná dopravní dostupnost do Letovic 2km, Boskovic 12 km, Svitav 25 km a Brna 35 km.
 Cena je uvedena za dokončený RD na klíč, bez oplocení, kuchyňské linky a zahradních úprav. 
-- Prehliadka 26.3. doobeda, cas ma byt upresneny v piatok poobede
+- Prehliadka 26.3. 10:30
 ### Kontakty
 **Marrow Estate s.r.o. Marek Šášek**
 
